@@ -1,1 +1,1 @@
-mme lire
+me lire sans faute
